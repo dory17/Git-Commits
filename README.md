@@ -8,3 +8,4 @@ sunday nov 10th ravens vs. browns; Ravens 28-7 win
 sun nov 20 Ravens vs. Cowboys; ravens 17-27 loss
 sun nov 27 vs. bengals; 19-14 win
 sun dec. 4th vs. dolphins; 38-6 win
+mon dec 12th vs. patriots; 30-23 loss
