@@ -11,3 +11,4 @@ sun dec. 4th vs. dolphins; 38-6 win
 mon dec 12th vs. patriots; 30-23 loss
 sun dec 18th vs eagles; 27-26 win
 sun dec 25 vs. steelers; 31-27 lose
+sun jan 1st vs. bengals; 10-27 loss
