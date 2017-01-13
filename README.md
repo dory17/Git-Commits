@@ -21,3 +21,4 @@ sun oct. 18 vs. 49r's; 20-25 loss
 mon oct 26 vs. cardinals; 18-26 loss
 sun nov. 1 vs. chargers; 26-29 win
 sun nov 15 vs, jaguars; 22-20 loss
+sun nov 22 vs. rams; 13-16 win
