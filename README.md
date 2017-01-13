@@ -18,3 +18,4 @@ sun sept 27 vs. bengals; 28-24 loss
 thur oct. 1 vs. steelers; 23-20 win
 sun oct. 11 vs. browns; 33-30 win
 sun oct. 18 vs. 49r's; 20-25 loss
+mon oct 26 vs. cardinals; 18-26 loss
