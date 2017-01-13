@@ -27,3 +27,4 @@ sun dec. 6 vs. dophins; 13-15 loss
 sun dec 28 vs. browns(2014); 20-10 win
 sat jan 3 vs. steelers (2014);30-17 won
 games are from a few years earlier/ sept 13 vs. broncos; 13-19 loss
+sept. 20 vs. raiders; 33-37 loss
