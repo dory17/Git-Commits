@@ -30,3 +30,4 @@ games are from a few years earlier/ sept 13 vs. broncos; 13-19 loss
 sept. 20 vs. raiders; 33-37 loss
 sept 27 vs. bengals; 24-28 loss
 oct 1 vs. steelers; 23-20 win
+oct. 11 vs. browns; 30-33 loss
