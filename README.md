@@ -24,3 +24,4 @@ sun nov 15 vs, jaguars; 22-20 loss
 sun nov 22 vs. rams; 13-16 win
 mon nov 30 vs. browns; 33-27 win
 sun dec. 6 vs. dophins; 13-15 loss
+sun dec 28 vs. browns(2014); 20-10 win
