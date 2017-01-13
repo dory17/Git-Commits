@@ -15,3 +15,4 @@ sun jan 1st vs. bengals; 10-27 loss
 sun sept. 13 RAvens vs. broncos; 13-19 loss
 sun sept 20 ravens vs. raiders; 37-33 loss
 sun sept 27 vs. bengals; 28-24 loss
+thur oct. 1 vs. steelers; 23-20 win
