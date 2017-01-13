@@ -29,3 +29,4 @@ sat jan 3 vs. steelers (2014);30-17 won
 games are from a few years earlier/ sept 13 vs. broncos; 13-19 loss
 sept. 20 vs. raiders; 33-37 loss
 sept 27 vs. bengals; 24-28 loss
+oct 1 vs. steelers; 23-20 win
