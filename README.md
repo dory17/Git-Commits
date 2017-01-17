@@ -40,3 +40,4 @@ Chargers scores sun oct 2 vs saints 35-34 loss
 chargers sun oct 9 vs raiders 31-34 loss
 raiders scores sun jan3 vs chiefs 17-23 loss
 raiders sept 11 vs. saints 35-34 win
+broncos denver sun sept 18 vs colts 20-34 win
