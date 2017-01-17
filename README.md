@@ -1,3 +1,5 @@
+doryclassworkgitkraken
+gitkraken1
 # Git-Commits
 Ravens Wins and Losses
 sunday october 9th 2017 Ravens vs. Redskins; Ravens lost 10-16
@@ -32,3 +34,11 @@ sept 27 vs. bengals; 24-28 loss
 oct 1 vs. steelers; 23-20 win
 oct. 11 vs. browns; 30-33 loss
 ravens baltimore
+Denver Broncos sun jan3 vs chargers 27-20 win
+denver broncos thus sept8 vs panthers 20-21 win
+Chargers scores sun oct 2 vs saints 35-34 loss
+chargers sun oct 9 vs raiders 31-34 loss
+raiders scores sun jan3 vs chiefs 17-23 loss
+raiders sept 11 vs. saints 35-34 win
+broncos denver sun sept 18 vs colts 20-34 win
+broncos vs bengals sun sept 25 20-34 win
