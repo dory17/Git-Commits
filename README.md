@@ -1,4 +1,3 @@
-
 doryclassworkgitkraken
 gitkraken1
 # Git-Commits
@@ -37,3 +36,5 @@ oct. 11 vs. browns; 30-33 loss
 ravens baltimore
 Denver Broncos sun jan3 vs chargers 27-20 win
 denver broncos thus sept8 vs panthers 20-21 win
+Chargers scores sun oct 2 vs saints 35-34 loss
+chargers sun oct 9 vs raiders 31-34 loss
