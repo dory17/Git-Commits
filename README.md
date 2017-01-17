@@ -35,3 +35,5 @@ sept 27 vs. bengals; 24-28 loss
 oct 1 vs. steelers; 23-20 win
 oct. 11 vs. browns; 30-33 loss
 ravens baltimore
+Denver Broncos sun jan3 vs chargers 27-20 win
+denver broncos thus sept8 vs panthers 20-21 win
