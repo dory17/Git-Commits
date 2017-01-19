@@ -44,3 +44,5 @@ broncos denver sun sept 18 vs colts 20-34 win
 broncos vs bengals sun sept 25 20-34 win
 dolphins sun oct 16 vs steelers 15-30 win
 dolphins sun oct 23 vs bills 25-28 win
+bills sun sept 13 vs colts 14-27 loss
+bills sun sept 27 vs dolphins 41-14 loss
