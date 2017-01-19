@@ -43,3 +43,4 @@ raiders sept 11 vs. saints 35-34 win
 broncos denver sun sept 18 vs colts 20-34 win
 broncos vs bengals sun sept 25 20-34 win
 dolphins sun oct 16 vs steelers 15-30 win
+dolphins sun oct 23 vs bills 25-28 win
