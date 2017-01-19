@@ -47,3 +47,4 @@ dolphins sun oct 23 vs bills 25-28 win
 bills sun sept 13 vs colts 14-27 loss
 bills sun sept 27 vs dolphins 41-14 loss
 colts mon sept 21 vs jets 20-7 loss
+colts sun sept 27 vs titans 35-33
