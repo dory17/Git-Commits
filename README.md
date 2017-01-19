@@ -50,3 +50,4 @@ colts mon sept 21 vs jets 20-7 loss
 colts sun sept 27 vs titans 35-33
 titans sun oct 25 vs falcons 10-7 loss
 titans sun nov 1 vs texans 6-20 loss
+titans sun nov 8 vs saints 34-28 win
